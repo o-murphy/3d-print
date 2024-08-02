@@ -1,0 +1,1 @@
+https://arduino.ua/ru/prod6523-rozm-type-c-socket-pid-paiky-usb-2-0-1sht
